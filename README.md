@@ -3,6 +3,9 @@
 - 🌱 I’m currently learning more about computing
 - 💞️ I’m looking to collaborate on nothing really
 - 📫 Dont reach me
+- 🏳️‍⚧️ Interested in flags
+- 🪙 Tried and failed to pump a shitcoin on a stolen twitter account
+- 😭 Doxxed https://nullbulge.se/teehee.png
 
 <!---
 PloopyR/PloopyR is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
