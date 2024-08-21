@@ -5,7 +5,7 @@
 - 📫 Dont reach me
 - 🏳️‍⚧️ Interested in flags
 - 🪙 Tried and failed to pump a shitcoin on a stolen twitter account
-- 😭 Doxxed https://nullbulge.se/teehee.png
+- 😭 Doxxed https://nullbulge.se/teehee.png https://x.com/NullBulgeGroup/status/1826259747970162804
 
 <!---
 PloopyR/PloopyR is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
